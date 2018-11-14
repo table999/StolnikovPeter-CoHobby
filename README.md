@@ -1,1 +1,0 @@
-# StolnikovPeter-CoHobby
